@@ -1,1 +1,1 @@
-How to write like Mark Twain
+How to write a story like Moby Dick
